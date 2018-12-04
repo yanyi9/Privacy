@@ -26,4 +26,4 @@ We reserve the right to change this privacy policy. Please pay attention to and 
 
 Contact us
 
-For any questions about our privacy policy, contact us at zhensha713263464@yeah.net
+For any questions about our privacy policy, contact us at yanyi957561293@yeah.net
